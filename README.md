@@ -8,5 +8,5 @@ though its good after a bitter moments
 <br>
 mark it down on the table
 <br>
-so that you will never forget
+so that you will never be late anymore
 <br>
